@@ -1,0 +1,1 @@
+# CrimsonChains-SMP-Seasonal-ResourcePack-
